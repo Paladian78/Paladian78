@@ -8,5 +8,5 @@
 - 💬 Ask me about  *`Programming logics`*
 - 📫 How to reach me:  **singhyogendar78@gmail.com**
 - 😄 Pronouns:  *`Him/He`*
--⚡ Nick-name:  ***Teddy***
+- ⚡ Nick-name:  ***Teddy***
 
